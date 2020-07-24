@@ -5,4 +5,4 @@ Bob says: I am putting in all this effort on this massive thing (Carol agrees).
 
 >the ted and Karol's excellent adventure!
 
-What's everybody having for dinner? Crab bisque sounds pretty good.
+What's everybody having for dinner? I'm thinking crab bisque sounds pretty good.
